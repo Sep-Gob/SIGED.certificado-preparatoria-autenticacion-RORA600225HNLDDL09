@@ -1,0 +1,2 @@
+# SIGED.certificado-preparatoria-autenticacion-RORA600225HNLDDL09
+RORA600225HNLDDL09
